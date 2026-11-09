@@ -1,1 +1,1 @@
-# TharanidaChan
+Tharanida Srathongaen Chan
